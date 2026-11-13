@@ -18,7 +18,4 @@ Tenho interesse em várias áreas do mundo digital, especialmente Design Gráfic
 - Mecânicas de jogo e Level Design
 - Criação de elementos para videojogos
 - 
-Estou sempre interessado em aprender, partilhar ideias, colaborar em projetos criativos e conhecer pessoas com interesses semelhantes.
-Obrigado por visitares o meu perfil!
----
 
