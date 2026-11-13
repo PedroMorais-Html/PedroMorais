@@ -17,5 +17,3 @@ Tenho interesse em várias áreas do mundo digital, especialmente Design Gráfic
 - Desenvolvimento de jogos 2D e 3D
 - Mecânicas de jogo e Level Design
 - Criação de elementos para videojogos
-- 
-
